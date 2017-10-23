@@ -1,1 +1,0 @@
-# directional-star.github.io
